@@ -1,1 +1,5 @@
 # MBS
+
+https://laas.makemylabs.in/wsm/TDDirectAccreditationJavaBatch420260113060219?invitation_id=5e1549ea-4484-44e3-8322-35f08d759b43&context=True
+
+https://apc01.safelinks.protection.outlook.com/?url=https%3A%2F%2Fu12856613.ct.sendgrid.net%2Fls%2Fclick%3Fupn%3Du001.Zf645-2BU4MQ9qO6g9WuT4qmaS9IILYMdjC-2BIrEfnX3-2FYfkghL-2B5zUCEOoFRM0sagdtsf3ZfhK1m9MCKP9NR-2B0Ag-3D-3DcTFF_axJEaq7BDRPrAc7xFLcfU74crilLzcmdwIHuxhVjbqBSXcakH4eiuRt83dlmTk8AJHStLCwHcVhNOF1H-2FZEANWH-2BV-2FyqmRBMbMzyYBt0II-2FH4aeybO6uXGiUewCre2Cx5RKLqrnhmruEohejzLFv3tbIir-2FuFaTgUD-2F5wJl1vV2PTbIrKV70ls0kksvAZfpLGWdXx9V6xROTT5Pj1pICgXYj-2FaiKYb9im4jZshbuJs4-3D&data=05%7C02%7Carnab.sarkar8%40cognizant.com%7Cf32327d58d5c46b55ecd08de4e7de9b5%7Cde08c40719b9427d9fe8edf254300ca7%7C0%7C0%7C639034500029140514%7CUnknown%7CTWFpbGZsb3d8eyJFbXB0eU1hcGkiOnRydWUsIlYiOiIwLjAuMDAwMCIsIlAiOiJXaW4zMiIsIkFOIjoiTWFpbCIsIldUIjoyfQ%3D%3D%7C40000%7C%7C%7C&sdata=EJtX5c1LRZ2ztz6g2cOUJTY3qOx%2FRuDJu43yuqt796M%3D&reserved=0
